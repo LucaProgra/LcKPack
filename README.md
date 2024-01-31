@@ -11,4 +11,4 @@ Animações nos gatos, vacas, creepers e galinhas. Textura customizado na élytr
 
 —————————————————————
 
-Mandem seus feedbacks aqui.
+Mandem seus feedbacks no meu [e-mail](lcunhalula@gmail.com).
